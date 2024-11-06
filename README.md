@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @rszannatul
+- 👀 I’m interested in smashing the websites.
+- 🌱 I’m currently learning cyber topics
+- 📫 How to reach me on linkedin
